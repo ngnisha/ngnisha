@@ -1,7 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=300&pause=600&color=7EF7DD&multiline=true&random=false&width=435&lines=+%F0%9F%91%8B++NISHA+GUPTA+-+%F0%9F%91%89+Data+Analyst+%E2%8C%A8%EF%B8%8F)](https://git.io/typing-svg)
 
 # 💫 About Me:
-👩 [**Nisha Gupta**](www.linkedin.com/in/nisha-ng-gupta) <br>🥇 Certified Data Analyst | M.com <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Open to learn new <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-9717934143 | Whatsapp | New Delhi . India<br>📩 nisha999gupta@gmail.com<br><br><br>Data is blabby , R u ready to listen ...??
+👩 [**Nisha Gupta**](www.linkedin.com/in/nisha-ng-gupta) <br>🥇 Certified Data Analyst | M.com <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Open to learn new <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-9717934143 | Whatsapp | New Delhi . India<br>📩 nisha999gupta@gmail.com<br><br><br>Data is Blabby , R u ready to listen ...??
 
 
 ## 🌐 Socials:
