@@ -52,10 +52,7 @@
 <img src="https://partyparrotasaservice.vercel.app/api/partyparrot" width="30" height="30"/>
 <img src="https://partyparrotasaservice.vercel.app/api/partyparrot" width="30" height="30"/>
 <img src="https://partyparrotasaservice.vercel.app/api/partyparrot" width="30" height="30"/>
-<img src="https://partyparrotasaservice.vercel.app/api/partyparrot" width="30" height="30"/>
-<img src="https://partyparrotasaservice.vercel.app/api/partyparrot" width="30" height="30"/>
-<img src="https://partyparrotasaservice.vercel.app/api/partyparrot?delay=20"width="30" height="30"/>
-<img src="https://partyparrotasaservice.vercel.app/api/partyparrot" width="30" height="30"/>
+
 
 
  </div>
