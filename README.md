@@ -6,7 +6,7 @@
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
 👩 [**Nisha Gupta**](www.linkedin.com/in/nisha-ng-gupta) <br>🥇 Certified Data Analyst | M.com <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Open to learn new <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-9717934143 | Whatsapp | New Delhi . India<br>📩 nisha999gupta@gmail.com <br><br>
-🧫  **Fun Fact ->**Passionné par les données<img src="https://media.giphy.com/media/qjqUcgIyRjsl2/giphy.gif" width="50" />
+🧫  **Fun Fact ->  Passionné par les données<img src="https://media.giphy.com/media/qjqUcgIyRjsl2/giphy.gif" width="50" />
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
  <ul align="center">***Data is Blabby , R u ready to listen ...??***</ul>
