@@ -4,6 +4,9 @@
 👩 [**Nisha Gupta**](www.linkedin.com/in/nisha-ng-gupta) <br>🥇 Certified Data Analyst | M.com <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Open to learn new <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-9717934143 | Whatsapp | New Delhi . India<br>📩 nisha999gupta@gmail.com<br><br><br>
 
  <ul align="center">***Data is Blabby , R u ready to listen ...??***</ul>
+<img src="https://github.com/Anmol-Baranwal/Cool-GIFs-For-GitHub/assets/74038190/f5d2d866-d25c-4873-8d82-425d2c62fc2e" width="300">
+<br><br>
+ <br><br>#powerbi #dataanalysis #msexcel #sql<br>#python #statistics #chatgpt #ai 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
 ## 🌐 Socials:
