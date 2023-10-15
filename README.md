@@ -1,9 +1,17 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=300&pause=600&color=7EF7DD&multiline=true&random=false&width=435&lines=+%F0%9F%91%8B++NISHA+GUPTA+-+%F0%9F%91%89+Data+Analyst+%E2%8C%A8%EF%B8%8F)](https://git.io/typing-svg)
 
+<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+
 # 💫 About Me:
-👩 [**Nisha Gupta**](www.linkedin.com/in/nisha-ng-gupta) <br>🥇 Certified Data Analyst | M.com <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Open to learn new <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-9717934143 | Whatsapp | New Delhi . India<br>📩 nisha999gupta@gmail.com<br><br><br>
+<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+
+👩 [**Nisha Gupta**](www.linkedin.com/in/nisha-ng-gupta) <br>🥇 Certified Data Analyst | M.com <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Open to learn new <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-9717934143 | Whatsapp | New Delhi . India<br>📩 nisha999gupta@gmail.com <br><br>
+🧫  **Fun Fact ->** Astutely Easygoing<img src="https://media.giphy.com/media/qjqUcgIyRjsl2/giphy.gif" width="50" />
+<img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
  <ul align="center">***Data is Blabby , R u ready to listen ...??***</ul>
+ <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+
 <img src="https://github.com/Anmol-Baranwal/Cool-GIFs-For-GitHub/assets/74038190/f5d2d866-d25c-4873-8d82-425d2c62fc2e" width="300">
 <br><br>
  <br><br>#powerbi #dataanalysis #msexcel #sql<br>#python #statistics #chatgpt #ai 
