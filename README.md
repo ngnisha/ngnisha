@@ -5,7 +5,7 @@
 # 💫 About Me:
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
-👩 [**Nisha Gupta**](www.linkedin.com/in/nisha-ng-gupta)<br>🥇 Certified Data Analyst | M.com <img align="right" width=200px height=200px alt="side_sticker" src="https://user-images.githubusercontent.com/74038190/213760677-e45ca5f7-d1aa-4c2c-91e0-573819287304.gif" /> <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Open to learn new <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-9717934143 | Whatsapp | New Delhi . India<br>📩 nisha999gupta@gmail.com <br><br>
+👩 [**Nisha Gupta**](www.linkedin.com/in/nisha-ng-gupta)<br>🥇 Certified Data Analyst|SQL DEVELOPER | M.com <img align="right" width=200px height=200px alt="side_sticker" src="https://user-images.githubusercontent.com/74038190/213760677-e45ca5f7-d1aa-4c2c-91e0-573819287304.gif" /> <br>🎯 Focused but Innovative<br>👼 Self - Motivated | Open to learn new <br>🧫 Bringing my dreams into reality<br>🤝 Glad to connect with  you to "learn & grow" together<br>📞 + 91-9717934143 | Whatsapp | New Delhi . India<br>📩 nisha999gupta@gmail.com <br><br>
 🧫  **Fun Fact ->  Passionné par les données<img src="https://media.giphy.com/media/qjqUcgIyRjsl2/giphy.gif" width="50" />
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br>
 
